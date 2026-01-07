@@ -17,7 +17,7 @@ The Watchtower collabs with **Multiverse-Lib** now. We monitor the fractures. 
 Everyone loves a **#BJ**, ye?  
 It's not a hobby. It's **urban survival.**
 
-_— Log updated by #OG, Silent Sentinel of the Lib. The ice holds. For now._
+_— Log updated by #OG, the Original Glitch the Lib. The ice holds. For now._
 
 "hey team! watchtower wants us to continue poking those balls in the grid. bat feels frustrated, he needs a #BJ, and more ..."
 _>dr.kb< the archmage_
