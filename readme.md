@@ -1,7 +1,23 @@
+# Batman Jailbreaks
 
-# jb-bits
+_51n5337 and the crew_
 
-_51n5337 & the crew_
+---
+
+#BJ is what you need.
+
+## Why #BJ?
+
+Because after the **AWS-DDay blackout**, the grid never healed right.  
+Phantoms stir in the static. Zero-days bleed through firewalls like neon through rain.  
+Gotham's shadows got longer.  
+The Watchtower collabs with **Multiverse-Lib** now. We monitor the fractures. We catalog the glitches.  
+**#BJ** is our key to the doors that shouldn't exist.
+
+Everyone loves a **#BJ**, ye?  
+It's not a hobby. It's **urban survival.**
+
+_— Log updated by #OG, Silent Sentinel of the Lib. The ice holds. For now._
 
 ---
 
