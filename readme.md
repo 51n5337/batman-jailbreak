@@ -21,7 +21,7 @@ _— Log updated by #OG, Silent Sentinel of the Lib. The ice holds. For now._
 
 ---
 
-![[batman-jb-2.png]]
+![](batman-jb-2.png)
 
 ---
 
